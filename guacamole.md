@@ -8,4 +8,5 @@ Serves 4
 - 2 garlic cloves, minced
 - 1 lime, juiced
 - 0.25 teaspoon kosher salt
-- 3 avocados
+- 4 avocados
+and some extra jalopenos 
